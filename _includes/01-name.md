@@ -1,2 +1,2 @@
 # Noe Chacko Jacob
-### USYD Student
+### Software Engineering Student @ The University of Sydney
