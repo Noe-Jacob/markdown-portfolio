@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+# Honours and Awards
+- Sydney Scholars India Scholarship
+- Dalyell Scholar
+- Gulf board Topper
